@@ -1,5 +1,8 @@
 # Content Strategist, Filmmaker & Visual Storyteller 🎥
 
+![Profile Views](https://komarev.com/ghpvc/?username=REDlip1&color=green)
+
+
 I’m a digital marketing specialist and film professional with experience in content strategy, video production, camera and electrical departments, and visual storytelling.
 
 My work combines creative production with marketing strategy to help businesses and productions communicate clearly, engage audiences, and create memorable experiences.
